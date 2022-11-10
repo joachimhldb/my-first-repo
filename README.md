@@ -4,3 +4,5 @@ I will add information to this file
 Which is getting added and added
 
 LOLOL
+
+Ik heb hier nog wat dingen toegevoegd
